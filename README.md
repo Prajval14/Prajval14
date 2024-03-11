@@ -21,4 +21,4 @@ I'm currently delving into exciting technologies and expanding my skill set. Her
 
 ## Get in Touch
 
-Let's connect and collaborate on interesting projects! Feel free to reach out to me via [email](mailto:prajval1420@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/prajval1420).
+Let's connect and collaborate on interesting projects! Feel free to reach out to me via [Email](mailto:prajval1420@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/prajval1420).
